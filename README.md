@@ -1,16 +1,12 @@
-# Kaspersky total security (kts) Key (3 months)
+# Kaspersky total security 3 month activation code!
 **TESTED BY ME! BUT IM STILL NOT RESPONSIBLE FOR ANY DAMAGES OF ANY SORT.**
  
 # **THE KEY FOR KTS TOTAL SECURITY IS**: 3M3K9-5R92S-ZDH5Y-NA944
+
 **TRY USING A VPN IF THE CODE DOESNT WORK**
 
-
-### **AFTER INSERTING THE CODE CLICK YES TO SWITCH TO KTS**
-
 # TUTORIAL VIDEO: https://www.youtube.com/watch?v=injK9HOX6YU
-  
  
-got it from: techno in
 
 
 
@@ -27,3 +23,7 @@ proof:
 
 
 # YOU CAN SEE THE 90 DAY TRIAL ON KTS
+
+
+
+got it from: techno in
