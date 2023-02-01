@@ -17,6 +17,8 @@ got it from: techno in
 proof:
 
 
-<img width="578" alt="Proof" src="https://user-images.githubusercontent.com/123305689/214291502-0431a4d3-d4e6-49be-9de8-3a78a29807c8.png">
+<img width="764" alt="Screenshot 2023-02-01 113707" src="https://user-images.githubusercontent.com/123305689/216149559-149e4545-0174-4019-9c33-fd393d5a28cb.png">
+
+<img width="578" alt="Proof" src="https://user-images.githubusercontent.com/123305689/216149621-e4127ce9-1f03-457b-990d-1bf3feafd513.png">
 
 # YOU CAN SEE THE 90 DAY TRIAL ON KTS
