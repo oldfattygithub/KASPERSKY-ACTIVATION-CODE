@@ -5,7 +5,9 @@
 **TRY USING A VPN IF THE CODE DOESNT WORK**
 
 
-# **AFTER INSERTING THE CODE CLICK YES TO SWITCH TO KTS**
+### **AFTER INSERTING THE CODE CLICK YES TO SWITCH TO KTS**
+
+# TUTORIAL VIDEO: https://www.youtube.com/watch?v=injK9HOX6YU
   
  
 got it from: techno in
