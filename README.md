@@ -1,8 +1,8 @@
 # Kaspersky total security 3 month activation code!
- 
-# **THE CODE FOR KASPERSKY:3M3K9-5R92S-ZDH5Y-NA944**
 
 # TUTORIAL VIDEO: https://www.youtube.com/watch?v=injK9HOX6YU
+ 
+ # **THE CODE FOR KASPERSKY:3M3K9-5R92S-ZDH5Y-NA944**
  
 **TRY USING A VPN IF THE CODE DOESNT WORK**
 
