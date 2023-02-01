@@ -1,7 +1,7 @@
 # Kaspersky total security 3 month activation code!
 **TESTED BY ME! BUT IM STILL NOT RESPONSIBLE FOR ANY DAMAGES OF ANY SORT.**
  
-# **THE KEY FOR KASPERSKY IS**: 3M3K9-5R92S-ZDH5Y-NA944
+# **THE CODE FOR KASPERSKY**: 3M3K9-5R92S-ZDH5Y-NA944
 
 # TUTORIAL VIDEO: https://www.youtube.com/watch?v=injK9HOX6YU
  
