@@ -16,4 +16,4 @@ it works! (see images)
 got it from: techno in
 
 
-# Tutorial video got banned from YT :(
+# CHECK FILES FOR NEW TUTORIAL VIDEO! (CAUSE THE OLD ONE GOT BANNED FROM YT) :( (HOPE THIS HELPS!)
