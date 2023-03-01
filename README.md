@@ -4,8 +4,6 @@
  
 **TRY USING A VPN IF THE CODE DOESNT WORK**
 
-# TUTORIAL VIDEO: https://www.youtube.com/watch?v=injK9HOX6YU
-
 it works! (see images)
 
 
@@ -16,3 +14,6 @@ it works! (see images)
 
 
 got it from: techno in
+
+
+# Tutorial video got banned from YT :(
