@@ -1,11 +1,10 @@
-# Kaspersky 3 month (trial) activation code!
+# Kaspersky (trial) activation code!
 
 # **CODE FOR KASPERSKY: 3M3K9-5R92S-ZDH5Y-NA944**
  
-**TRY USING A VPN IF THE CODE DOESNT WORK**
+**USE A VPN, IF THE CODE DOESN'T WORK**
 
-it works! (see images)
-
+proof:
 
 <img width="764" alt="Screenshot 2023-02-01 113707" src="https://user-images.githubusercontent.com/123305689/216149559-149e4545-0174-4019-9c33-fd393d5a28cb.png">
 
@@ -13,7 +12,7 @@ it works! (see images)
 
 
 
-got it from: techno in
+Source: techno in (giveaway)
 
 
 # CHECK FILES (or releases) FOR NEW TUTORIAL VIDEO! (CAUSE THE OLD ONE GOT BANNED FROM YT) :( (HOPE THIS HELPS!)
