@@ -1,8 +1,8 @@
   # Kaspersky (trial) activation code!
 
-# **CODE FOR KASPERSKY: 3M3K9-5R92S-ZDH5Y-NA944**
+# **ACTIVATION CODE: 3M3K9-5R92S-ZDH5Y-NA944**
  
-**USE A VPN, IF THE CODE DOESN'T WORK**
+**IF THE CODE DOESN'T WORK, TRY USING A VPN**
 
 Source: techno in (giveaway)
 
