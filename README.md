@@ -2,8 +2,6 @@
 
 # **CODE: 3M3K9-5R92S-ZDH5Y-NA944**
 
-proof:
-
-<img width="764" alt="Screenshot 2023-02-01 113707" src="https://user-images.githubusercontent.com/123305689/216149559-149e4545-0174-4019-9c33-fd393d5a28cb.png">
+<img width="371" alt="Screenshot 2023-04-1 164009" src="https://user-images.githubusercontent.com/123305689/231231145-effed7cd-786d-4e5f-a94a-f8a831abf54f.png">
 
 **USE A VPN IF IT'S NOT WORKING.**
