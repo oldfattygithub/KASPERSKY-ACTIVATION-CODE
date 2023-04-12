@@ -4,7 +4,7 @@ THIS IS LEGAL! this is not pirated. its simply a (fully fledged) trial code from
 
 ## Our Standards
 
-you can add issues (although idk why there would be lol. just dont recommend cracked software. you can recommend longer codes!
+you can add issues (although idk why there would be any lol) just dont recommend cracked software. you can recommend longer (or better) codes!
 
 ## Scope
 
